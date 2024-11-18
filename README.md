@@ -19,5 +19,8 @@ I will probably be offtab most of the time
 
 · 💭 · TEXT
 
-the person who owns this account is trying to be as nice as possible to the people around them !!
-i also dont think alot about what i say (apologizing for this in advance if you do INT with me and i say something mean)
+I am trying to be as nice as possible to the people around me !! :D
+
+I also dont think alot about what I say  lmk if I do
+(apologizing for this in advance 
+if you do INT with me and i say something mean or something that makes you uncomf)
