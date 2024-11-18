@@ -8,6 +8,8 @@ IT DEPENDS ALOT ON MY MOOD THOUGH
 I will probably be offtab most of the time
 
 
+— — — — —
+
 
 · 🎭 · STUFF I LIKE/KNOW
 
@@ -21,6 +23,8 @@ I will probably be offtab most of the time
 
 (Theres alot more i am NOT noting them all here)
 
+
+— — — — —
 
 
 · 💭 · TEXT
