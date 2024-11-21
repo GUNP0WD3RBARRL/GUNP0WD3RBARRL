@@ -11,7 +11,7 @@ IT DEPENDS ALOT ON MY MOOD THOUGH
 — — — — —
 
 
-· 🎭 · STUFF I LIKE/KNOW
+· 🎭 · STUFF I LIKE/KNOW/ENJOY
 
 - GNB/Guts And Blackpowder 
 - PH!/PHIGHTING!
@@ -21,15 +21,15 @@ IT DEPENDS ALOT ON MY MOOD THOUGH
 - REGRETEVATOR
 - EVADE
 
-(Theres alot more i am NOT noting them all here)
+(Theres alot more i probably forgot i am NOT noting them all here)
 
 
 — — — — —
 
 
-· 💭 · TEXT
+· 💭 · EXTRA
 
-- I am trying to be as nice as possible to the people around me !! :D
+- I try my best to not be dry and I am trying to be as nice as possible to the people around me !! :D
 
 - I also dont think alot about what I say  lmk if I do  ————[⟩
 
