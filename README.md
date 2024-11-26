@@ -2,7 +2,7 @@
 
 - I PLAY ROADBLOX !!
 
-- I find cosplaying cool and cosplay as characters online most of the time
+- I find cosplaying VERY cool and cosplay as characters online most of the time
 
 - MOSTLY DNIUF/DNIUP/DNIUD ———[⟩
 IT DEPENDS ALOT ON MY MOOD THOUGH 
@@ -18,4 +18,4 @@ IT DEPENDS ALOT ON MY MOOD THOUGH
 - I also dont think alot about what I say  lmk if I do  ————[⟩
 
 (apologizing for this in advance 
-if you do INT with me and i say something mean or something that makes you uncomf)
+if you do INT with me and i say something mean or something that makes you uncomf or feel hurt)
