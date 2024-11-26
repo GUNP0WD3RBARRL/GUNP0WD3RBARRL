@@ -2,8 +2,6 @@
 
 - I PLAY ROADBLOX !!
 
-- I find cosplaying VERY cool and cosplay as characters online most of the time
-
 - MOSTLY DNIUF/DNIUP/DNIUD ———[⟩
 IT DEPENDS ALOT ON MY MOOD THOUGH 
 
