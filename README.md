@@ -7,6 +7,8 @@ IT DEPENDS ALOT ON MY MOOD THOUGH
 
 - I will also probably be offtab most of the time
 
+https://tenor.com/view/yippee-gif-12598976956267201998
+
 — — — — —
 
 
