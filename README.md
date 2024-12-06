@@ -5,7 +5,7 @@ this will be mostly used for information i guess
 - YOU CAN CALL ME ; " Mari " / " Gemi " !!
 (doubt anyone would use the 2nd name though)
 
- - I like stuff that are MOSTLY from roblox but i have other interests as well 
+ - I like stuff that are MOSTLY from roblox(GNB, BLOCKTALES & EVADE) but i have other interests as well 
 
  - MOSTLY DNIUF/DNIUP/DNIUD ON PONYTOWN ———[⟩
 IT DEPENDS ALOT ON MY MOOD THOUGH, I WILL ALSO BE OFFTAB MOST OF THE TIME
