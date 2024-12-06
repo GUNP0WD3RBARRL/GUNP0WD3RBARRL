@@ -1,9 +1,10 @@
 · ❔ · A BIT OF INFORMATION 
 
-- I PLAY ROADBLOX !!
-
 - MOSTLY DNIUF/DNIUP/DNIUD ———[⟩
 IT DEPENDS ALOT ON MY MOOD THOUGH 
+
+- YOU CAN CALL ME ; " Mari " / " Gemi " !!
+(doubt anyone would use the 2nd name though)
 
 - I will also probably be offtab most of the time
 
