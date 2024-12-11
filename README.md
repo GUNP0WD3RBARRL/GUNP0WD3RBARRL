@@ -7,7 +7,7 @@ A BIT OF INFORMATION >:3
  - —— — YOU CAN CALL ME ; " Mari " / " Gemi " !!
 (doubt anyone would actually use the 2nd name though)
 
- - ———— — I LIKE COOL GAMES!:D.
+ - ———— — I LIKE COOL GAMES! :D
 
  - ————— — I like colorful and vintage stuff.
 
@@ -23,7 +23,9 @@ IT DEPENDS ALOT ON MY MOOD THOUGH, I WILL ALSO BE OFFTAB MOST OF THE TIME -
 [ · ❔ · ] 
 EXTRA
 
-- I try my best to not be dry and I am trying to be as nice as possible to the people around me !! :D
+- I try my best to not be dry and i sometimes switch topics alot so i may be very offtopic at times!! :D
+
+
 ————[⟩  I also dont think alot about what I say please do lmk if I accidentally hurt your feelings or smth
 
 ( apologizing for this in advance 
