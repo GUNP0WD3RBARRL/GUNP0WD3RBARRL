@@ -1,4 +1,6 @@
-this will be mostly used for information i guess
+this will be mostly used for information i guess 
+
+-
 
 [ · ❔ · ] A BIT OF INFORMATION 
 
@@ -6,6 +8,8 @@ this will be mostly used for information i guess
 (doubt anyone would use the 2nd name though)
 
  - I like stuff that are MOSTLY from roblox(GNB, BLOCKTALES & EVADE) but i have other interests as well 
+
+— ❕ — ❕ —
 
  - MOSTLY DNIUF/DNIUP/DNIUD ON PONYTOWN ———[⟩
 IT DEPENDS ALOT ON MY MOOD THOUGH, I WILL ALSO BE OFFTAB MOST OF THE TIME
