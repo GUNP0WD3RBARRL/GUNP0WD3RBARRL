@@ -10,8 +10,10 @@ A BIT OF INFORMATION >:3
 · 📋 ·
 · - YOU CAN CALL ME ; " Mari " / " Gemi " !!
 (doubt anyone would use the 2nd name though)
+
 ——— — I like stuff that are MOSTLY from roblox but i do have other interests as well
-————— — I mostly focus on one game/show i like most of the time
+
+————— — I mostly focus on one/multiple games/shows I like most of the time
 
 — ❕ — 🧭 — ❕ —
 
