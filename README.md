@@ -1,20 +1,15 @@
-this will be mostly used for information i guess although im terrible at these things 
+this will be mostly used for information i guess although im terrible at these things
 
--
-
-[ · ❔ · ] 
+[ · 📋❔ · ] 
 A BIT OF INFORMATION >:3
 
 
-
-· 📋 ·
-
-—— — YOU CAN CALL ME ; " Mari " / " Gemi " !!
+ - —— — YOU CAN CALL ME ; " Mari " / " Gemi " !!
 (doubt anyone would use the 2nd name though)
 
-———— — I like stuff that are MOSTLY from roblox but i do have other interests as well
+ - ———— — I like stuff that are MOSTLY from roblox but i do have other interests as well
 
-—————— — I mostly focus on one/multiple games/shows I like most of the time
+ - —————— — I mostly focus on one/multiple games/shows I like most of the time
 
 — ❕ — 🧭 — ❕ —
 
