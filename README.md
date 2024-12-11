@@ -7,11 +7,11 @@ A BIT OF INFORMATION >:3
  - —— — YOU CAN CALL ME ; " Mari " / " Gemi " !!
 (doubt anyone would actually use the 2nd name though)
 
-. - ———— — I LIKE COOL GAMES!:D.
+ - ———— — I LIKE COOL GAMES!:D.
 
-. - ————— — I like colorful and vintage stuff.
+ - ————— — I like colorful and vintage stuff.
 
-. - ——————— — I mostly focus on one/multiple games/shows I like most of the time.
+ - ——————— — I mostly focus on one/multiple games/shows I like most of the time.
 
 — ❕ — 🧭 — ❕ —
 
