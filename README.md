@@ -9,9 +9,9 @@ A BIT OF INFORMATION >:3
 
  - ———— — I LIKE COOL GAMES! :D
 
- - ————— — I like colorful and vintage stuff.
+ - —————— — I like colorful and vintage stuff.
 
- - ——————— — I mostly focus on one/multiple games/shows I like most of the time.
+ - ———————— — I mostly focus on one/multiple games/shows I like most of the time.
 
 — ❕ — 🧭 — ❕ —
 
