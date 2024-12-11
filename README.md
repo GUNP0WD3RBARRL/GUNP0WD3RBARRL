@@ -1,15 +1,17 @@
-this will be mostly used for information i guess although im terrible at these things
+this will be mostly used for information+ponytown i guess although im terrible at these things
 
-[ · 📋❔ · ] 
+[ · 📝❔ · ] 
 A BIT OF INFORMATION >:3
 
 
  - —— — YOU CAN CALL ME ; " Mari " / " Gemi " !!
-(doubt anyone would use the 2nd name though)
+(doubt anyone would actually use the 2nd name though)
 
- - ———— — I like colorful and vintage related stuff
+. - ———— — I LIKE COOL GAMES!:D.
 
- - —————— — I mostly focus on one/multiple games/shows I like most of the time
+. - ————— — I like colorful and vintage stuff.
+
+. - ——————— — I mostly focus on one/multiple games/shows I like most of the time.
 
 — ❕ — 🧭 — ❕ —
 
