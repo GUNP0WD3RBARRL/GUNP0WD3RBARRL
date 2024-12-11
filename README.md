@@ -13,7 +13,7 @@ A BIT OF INFORMATION >:3
 
  - ———————— — I mostly focus on one/multiple games/shows I like most of the time.
 
-— ❕ — 🧭 — ❕ —
+— + — ❕ — 🧭 — ❕ — + —
 
  - MOSTLY DNIUF/DNIUP/DNIUD ON PONYTOWN ———[⟩
 IT DEPENDS ALOT ON MY MOOD THOUGH, I WILL ALSO BE OFFTAB MOST OF THE TIME -
