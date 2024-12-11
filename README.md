@@ -1,13 +1,16 @@
-this will be mostly used for information i guess 
+this will be mostly used for information i guess although im terrible at these things 
 
 -
 
-[ · ❔ · ] A BIT OF INFORMATION 
+[ · ❔ · ] A BIT OF INFORMATION >:3
 
-- YOU CAN CALL ME ; " Mari " / " Gemi " !!
+
+
+· 📋 ·
+· - YOU CAN CALL ME ; " Mari " / " Gemi " !!
 (doubt anyone would use the 2nd name though)
-
- - I like stuff that are MOSTLY from roblox(GNB, BLOCKTALES & EVADE) but i have other interests as well 
+·   - I like stuff that are MOSTLY from roblox but i have other interests as well
+·    - I mostly focus on one game/show i like most of the time
 
 — ❕ — ❕ —
 
