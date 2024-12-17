@@ -15,8 +15,11 @@ A BIT OF INFORMATION >:3
 
 — + — ❕ — 🧭 — ❕ — + —
 
- - MOSTLY DNIUF/DNIUP/DNIUD ON PONYTOWN ———[⟩
-IT DEPENDS ALOT ON MY MOOD THOUGH, I WILL ALSO BE OFFTAB MOST OF THE TIME -
+ - I WILL MOSTLY BE
+DNIUF/DNIUP/DNIUD ON PONYTOWN ———[⟩
+IT DEPENDS ALOT ON MY MOOD THOUGH,
+¡
+I WILL ALSO BE OFFTAB MOST OF THE TIME -
 
 —— —— —— —— —— —— —— ——
 
